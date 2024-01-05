@@ -1,0 +1,1 @@
+#qoralanma vazifa uchun yozilgan
